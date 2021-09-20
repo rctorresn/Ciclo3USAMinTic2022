@@ -1,0 +1,1 @@
+# Ciclo3USAMinTic2022
